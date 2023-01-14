@@ -1,1 +1,1 @@
-# tnvrsujon1.github.io
+# THIS IS A PRIVATE DOMAIN USED BY BD GAMEZ FOR EMAILS
